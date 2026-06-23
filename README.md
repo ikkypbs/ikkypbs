@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-✨👍
+Bertani Berteknologi✨👍
 
 ![my beauty github](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExbWoyd3hxazlnaXowbnJpZ2NhbWdjd3I3YWs5c2diZngxczNkNmN3OSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/NatbVZ9NsLwU8/giphy.gif)
