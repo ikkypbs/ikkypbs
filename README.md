@@ -15,3 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 ✨👍
+
+![my beauty github](https://github.com/eli64s/readme-ai)
